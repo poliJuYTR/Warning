@@ -1,4 +1,0 @@
-- 👋 Hi, I’m @poliJuYTR (poli Ju YTR)
-- ❓ Have any question? Contact me with E-mail : uweisdke439049@outlook.com
-- ⬇️ Here I'm upload some thing
-- ❤️ And thanks for visit my user!
